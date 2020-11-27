@@ -1,0 +1,1 @@
+# Investigated-dinamic-minor-value-of-almost-lokal-farming-product-are-produced-the-traditional-idea
